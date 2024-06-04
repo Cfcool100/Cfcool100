@@ -17,7 +17,7 @@
 </p>
 
 [![wakatime](https://wakatime.com/badge/user/a1ef6060-b0cc-41c6-8b2c-eda5e13eecb3.svg)](https://wakatime.com/@a1ef6060-b0cc-41c6-8b2c-eda5e13eecb3)
-![](https://komarev.com/ghpvc/?username=Cfcool100&abbreviated=true)
+![](https://hit.yhype.me/github/profile?user_id=90472774)
 
 
 ## 👀 I’m interested in
